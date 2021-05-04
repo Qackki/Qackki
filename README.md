@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Qackki (Gabbie)
 - 👀 I’m interested in learning abt this website
-- 💞️ I’m Bi
 - 📫 How to reach me- L ̇/ᓭℸ ̣ ᒷ∷#0599 on discord or @Qackki on twitter
 
 <!---
